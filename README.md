@@ -12,3 +12,8 @@ A list of historical references to the Hamilton Naturalists' Club, also previous
 ## The Canadian Field-Naturalist
 
 * Report of a Carolina Wren [Jan 1923, Volume 23, Page 19](https://archive.org/stream/canadianfieldnat1923otta#page/18/mode/2up)
+
+## Agricultural Gazette of Canada
+
+* "The Relation of Birds to Crops", by Ruby R. Mills [Vol 8, No.1, Page 69](https://archive.org/stream/n01agriculturalg08canauoft#page/68/mode/2up)
+* "The Hamilton Bird Protection Society", by Ruby R. Mills, [Vol 8, No. 1, Page 71](https://archive.org/stream/n01agriculturalg08canauoft#page/70/mode/2up)
