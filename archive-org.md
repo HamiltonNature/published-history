@@ -12,7 +12,8 @@ A list of historical references to the Hamilton Naturalists' Club, also previous
 
 ## The Canadian Field-Naturalist
 
-* Report of a Carolina Wren [Jan 1923, Volume 23, Page 19](https://archive.org/stream/canadianfieldnat1923otta#page/18/mode/2up)
+* Report of a Carolina Wren [Jan 1923, Volume XXXVII, Page 19](https://archive.org/stream/canadianfieldnat1923otta#page/18/mode/2up)
+* Back cover of magazine, description of HBPS [Volume XXXVI](https://archive.org/stream/canadianfieldnat36otta#page/n209/mode/2up) (interesting note: meeting schedule nearly identical to current schedule)
 
 ## Agricultural Gazette of Canada
 
