@@ -6,9 +6,9 @@ A list of historical references to the Hamilton Naturalists' Club, also previous
 
 * Formation of Hamilton Bird Protection Society, May 1, 1919: [Volume 21, page 438](https://archive.org/stream/birdlore21nati/#page/438/mode/2up)
 * Bird Migration in Ontario [Volume 21, Page 307](https://archive.org/stream/birdlore21nati#page/306/mode/2up)
+* Hamilton Bird Protection Society update [Volume 22, Page 412](https://archive.org/stream/birdlore22nati#page/412/mode/2up) (Mention of Ontario Charter granted)
 * Postmarks for Birds [Volume 24, Page 446](https://archive.org/stream/birdlore241922nati/#page/446/mode/2up)
 * Postmarks for Birds, action to protect Dundas Marsh [Volume 24, Page 186](https://archive.org/stream/birdlore241922nati#page/186/mode/2up)
-* Hamilton Bird Protection Society update [Volume 22, Page 412](https://archive.org/stream/birdlore22nati#page/412/mode/2up) (Mention of Ontario Charter granted)
 
 ## The Canadian Field-Naturalist
 
