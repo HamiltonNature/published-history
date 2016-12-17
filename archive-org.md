@@ -1,4 +1,4 @@
-# published-history
+# HNC & HBPS Published History References on Archive.org
 
 A list of historical references to the Hamilton Naturalists' Club, also previously known as the Hamilton Bird Protection Society.
 
